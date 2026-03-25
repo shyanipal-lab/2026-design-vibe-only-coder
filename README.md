@@ -1,0 +1,1 @@
+# 2026-design-vibe-only-coder
